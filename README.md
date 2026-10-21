@@ -1,16 +1,23 @@
-## Hi there 👋
+════════════════════════════════ 𝐀𝐛𝐨𝐮𝐭 𝐦𝐞 ☮ ═══════════════════════════════
 
-<!--
-**Eighth-W0nder/Eighth-W0nder** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ʀᴇᴇꜱᴇ / ᴡᴏɴᴅᴇʀ • 18 | ʜᴇ/ʜɪᴍ | ᴘᴀɴ 
 
-Here are some ideas to get you started:
+:𝐃𝐌 𝐒𝐭𝐚𝐭𝐮𝐬: ᴏᴘᴇɴ ʙᴜᴛ ɪ ᴜꜱᴜᴀʟʟʏ ᴋᴇᴇᴘ ꜱᴏᴄɪᴀʟꜱ ᴛᴏ ꜰʀɪᴇɴᴅꜱ | ᴀꜱᴋ ᴛᴏ ꜰʀɪᴇɴᴅ (ᴍᴀʏ ɴᴏᴛ ᴀᴄᴄᴇᴘᴛ ɪꜰ ɪ'ᴠᴇ ᴏɴʟʏ ᴊᴜꜱᴛ ᴍᴇᴛ ʏᴏᴜ)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+:𝐈𝐍𝐓: ᴘʀᴇꜰᴇʀᴀʙʟʏ 16+ㅤㅤ
+
+:𝐃𝐍𝐈: ʙᴀꜱɪᴄ ᴅɴɪ, ᴍɪɴᴏʀꜱ ᴏɴ 18+ ꜱᴇʀᴠᴇʀ
+
+:𝐌𝐮𝐬𝐢𝐜 𝐆𝐞𝐧𝐫𝐞: ᴘᴜɴᴋ, ꜱᴋᴀ, ɪɴᴅᴜꜱᴛʀɪᴀʟ
+
+:𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬: , ᴘᴏᴋᴇᴍᴏɴ, ᴘᴏᴛꜱᴀʟ, ʀɪᴄᴋ ᴀɴᴅ ᴍᴏʀᴛʏ, ꜰɴᴀꜰ, ꜱᴏɴɪᴄ, ᴠɪꜱᴜᴀʟ ɴᴏᴠᴇʟ ɢᴀᴍᴇꜱ, ʜᴘ, ɴɪɴᴀʜ
+
+:𝐄𝐱𝐭𝐫𝐚: ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ!! | https://eighthw0nder.straw.page/ ╾━╤デ╦︻
+
+═════════════════════════════════════════════════════════════════════════
+
+"ᴜꜱᴜᴀʟʟʏ ɴᴀᴋᴇᴅ ᴀɴᴅ ꜱᴛᴏɴᴇᴅ. ʜᴇ ᴛᴀʟᴋꜱ ᴀ ʟᴏᴛ, ꜰʀᴇQᴜᴇɴᴛʟʏ ᴡɪᴛʜ ᴘʀᴏꜰᴀɴɪᴛʏ. ʜᴇ ᴀʟꜱᴏ ᴛᴇɴᴅꜱ ᴛᴏ ᴋᴇᴇᴘ ᴏᴅᴅ ᴡᴀᴋɪɴɢ ʜᴏᴜʀꜱ..." 🍃🚬
+
+═════════════════════════════════════════════════════════════════════════
+
+ <img width="100" height="188" alt="image" src="https://github.com/user-attachments/assets/7715a0fe-ad74-4fa6-875c-5c530d848f28" /> <img width="120" height="70" alt="image" src="https://github.com/user-attachments/assets/dafbcb93-3675-406b-93e1-3606acd2e4f6" />
